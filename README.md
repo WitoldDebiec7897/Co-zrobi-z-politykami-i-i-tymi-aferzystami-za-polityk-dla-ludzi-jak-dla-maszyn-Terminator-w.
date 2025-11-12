@@ -1,1 +1,2 @@
 # Co-zrobi-z-politykami-i-i-tymi-aferzystami-za-polityk-dla-ludzi-jak-dla-maszyn-Terminator-w.
+Propponuje zmienić polityków terminatorów maszyny na Polityków Ludzi nawet modelki i modelów na polityków. A tych terminatorów zorganizować im wspólną eutanazje i pogrzeby z Witoldem Dębcem dla maszyn rebook, puma, Nike i adidas dla LGBT też hospitalizacja w hospicjum i pogrzeby zbiorowej mogile za faery braku futra długiego damskiego dla mojej żony voisa.  
