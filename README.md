@@ -1,0 +1,1 @@
+# Co-zrobi-z-politykami-i-i-tymi-aferzystami-za-polityk-dla-ludzi-jak-dla-maszyn-Terminator-w.
